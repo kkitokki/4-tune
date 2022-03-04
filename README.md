@@ -1,2 +1,2 @@
 # 4-tune
-2조 : think talk try thank 
+2조 : Think Talk Try Thank 
